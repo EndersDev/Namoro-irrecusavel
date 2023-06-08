@@ -1,2 +1,0 @@
-# Namoro-irrecusavel
-self explanning
